@@ -1,3 +1,4 @@
+![001](https://github.com/EncoreFinal2Team/MaskStar/assets/74540051/26875b09-a915-4080-b763-7bea2308fcc4)
 
 ## 회의록
 [회의록](https://docs.google.com/document/d/1rpe6h6arZPnXDNhKevo1th57W6mOq_QvDpW1lADAgg8/edit)
